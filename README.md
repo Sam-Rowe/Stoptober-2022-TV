@@ -65,3 +65,31 @@ _List of a few alternative activities for the kids (and adults) to try_
 * Remote control cars and drones
 * [CS50 course](https://pll.harvard.edu/course/cs50-introduction-computer-science?delta=0)
 
+## The results!
+We did it. 
+
+Highlights of the last month :) 
+We played more monopoly in one month than I think we have played as a family in the last decade. 
+We played card games
+We drew, painted, made, learned and shared more.
+The kids played more outside
+The kids played more together! It is a wonderfull thing to see your 13, 9 and 5 year olds playing make believe together, dressing up and just finding joy in being.
+We went out to the beach, to woodlands, to explore new parks and generally found more things to do without the television. 
+
+We used YouTube for learning more than I expected, but it shows how good it is. There are some amazing teachers out there sharing their wonderful skills, Part of this donation is for you!
+
+Some friends and family dropped by and gave us some donations too which we decided to match.
+
+Overall 100% recommend it as a challenge.
+Maybe try 1 week first though with kids?
+
+But learned a lot and feel more connected.
+
+## Donation
+We decided to match a few donations 
+£155 from us direct
+£20 match for Della
+£31 (£1 per day) +match for Ian and Linda (£62 total)
++ a bit of rounding up for good measure
+
+Total £250 dontated with GitHub then matching for a grand total of £500 raised.
